@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lkyanamaisamari
+- 👀 I’m interested in UI/UX
+- 🌱 I’m currently learning UI/UX
+- 💞️ I’m looking to collaborate on Tech related skills. 
+- 📫 How to reach me mobile/social media handles...
