@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lkyanamaisamari
-- 👀 I’m interested in UI/UX
+- 👀 I’m interested in Data Analysis (Intern)
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on Tech related skills. 
-- 📫 How to reach me mobile/social media handles...
+- 📫 How to reach me email:darlynmypal@gmail.com
